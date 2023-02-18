@@ -23,7 +23,7 @@ Notices at both entrances to the Playing Field will communicate the new policy a
 
 We also request that _all dog owners_ :
 
-- pick up any dog excrement deposited in the village and dispose of this safely, and
+- pick up any dog excrement deposited in the village and dispose of this safely, _and_
 - ensure that their dogs are receiving anthelmintic treatment (regular worming).
 
 We remind villagers that a _Public Space Protection Order_ (PSPO) in relation to enhanced dog controls is in operation across the Harborough District, allowing a £100 fixed penalty fine to be issued to dog owners who do not pick up their dog's mess, and the possibility of dog owners being taken to court, where a fine of up to £1000 can be issued on conviction.
