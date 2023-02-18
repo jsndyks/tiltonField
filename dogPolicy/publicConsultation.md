@@ -8,7 +8,7 @@ This document was produced by the _RCC Community Action Team_ who we comissioned
 
 Views were acquired through a household survey, school visits, and open day and a village picnic.
 
-This issue of dog use was covered in [Section 7.3](files/TiltonPlayingField.CommunityVisionAndActionPlan.dogs.pdf), which follows, and that resulted in **Recommendation 14** that has been the basis of policy since 2015.
+This issue of dog use was covered in [Section 7.3](./files/TiltonPlayingField.CommunityVisionAndActionPlan.dogs.pdf), which follows, and that resulted in **Recommendation 14** that has been the basis of policy since 2015.
 
 Section 7.3 is reproduced below.
 

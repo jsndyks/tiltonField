@@ -2,7 +2,7 @@
 
 ### Public Consultation - Vision Statements
 
-The [Community Vision & Action Plan]() contained the following **Vision Statements** that we have used to maintain and develop the field.
+The [Community Vision & Action Plan](../docs/Tilton%20Playing%20Field%20-%20Community%20Vision%20%26%20Action%20Plan.pdf) contained the following **Vision Statements** that we have used to maintain and develop the field.
 
 > Throughout the engagement and consultation process completed in relation to the Tilton Playing Field views, priorities, and ideas have been gathered from across residents of Tilton & Halstead in order to develop a community vision for the future appearance, feel, use, and management of the site.
 
