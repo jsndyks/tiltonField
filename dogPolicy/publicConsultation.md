@@ -2,13 +2,13 @@
 
 ### Public Consultation on Dogs on the Playing Field
 
-The Playing Field is developed and maintained in accordance with thee [Community Vision and Action Plan]().
+The Playing Field is developed and maintained in accordance with thee [Community Vision and Action Plan](../docs/Tilton%20Playing%20Field%20-%20Community%20Vision%20%26%20Action%20Plan.pdf).
 
 This document was produced by the _RCC Community Action Team_ who we comissioned to engage widely in a community consultation process.
 
 Views were acquired through a household survey, school visits, and open day and a village picnic.
 
-This issue of dog use was covered in section 7.3, which follows, and that resulted in **Recommendation 14** that has been the basis of policy since 2015.
+This issue of dog use was covered in [Section 7.3](files/TiltonPlayingField.CommunityVisionAndActionPlan.dogs.pdf), which follows, and that resulted in **Recommendation 14** that has been the basis of policy since 2015.
 
 Section 7.3 is reproduced below.
 
