@@ -4,7 +4,7 @@
 
 The key risks to health are _bites_ and _toxocariasis_, an infection caused by roundworm parasites found in faeces.
 
-There are of course many reports and many views, but the following, which I have attempoted to select from authoritative sources and to give a balanced view, summarise things quite well.
+There are of course many reports and many views, but the following, which I have attempted to select from authoritative sources and to give a balanced view, summarise things quite well.
 
 #### Risk
 
@@ -46,6 +46,6 @@ The Playing Field is a 'Field in Trust' - but this organization dodges the dog i
 
 ---
 
-**Jay DYKES**
-_Tilton Playing Field_
+**Jay DYKES**<br/>
+_Tilton Playing Field_<br/>
 18/02/23

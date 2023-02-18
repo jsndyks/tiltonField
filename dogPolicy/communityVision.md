@@ -30,6 +30,6 @@ The most important in the context of the dog ban issue is:
 
 ---
 
-**Jay DYKES**
-_Tilton Playing Field_
+**Jay DYKES**<br/>
+_Tilton Playing Field_<br/>
 18/02/23

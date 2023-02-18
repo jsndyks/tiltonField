@@ -9,7 +9,7 @@ In determining a policy for safe use of the playing field we have listened to th
 This is predominantly through:
 
 1.  [Toxocariasis](https://www.nhs.uk/conditions/toxocariasis/) - a rare infection caused by roundworm parasites found in faeces that has bene termed '[the Parasite of the Playground](https://www.nytimes.com/2018/01/16/health/toxocara-children-new-york-playgrounds.html)', and
-2.  [dog bites and attacks](https://digital.nhs.uk/data-and-information/find-data-and-publications/supplementary-information/2019-supplementary-information-files/admissions-to-hospital-for-dog-bite-injuries) - with over 8,000 hospital admissions per year in the UK for those _bitten or struck by dog_ with under 10s the most likely to be admitted.
+2.  [dog bites and attacks](https://digital.nhs.uk/data-and-information/find-data-and-publications/supplementary-information/2019-supplementary-information-files/admissions-to-hospital-for-dog-bite-injuries) - with over 7,000 hospital admissions per year in the UK for those _bitten or struck by dog_ with under 10s the most likely to be admitted.
 
 While many people have enjoyed exercising their dogs on the field during the trial dual-usage period since 2015, and most have done so responsibly, most of the communications to the Parish Council since then have been against continuing this policy, for reasons of safety.
 
@@ -30,6 +30,6 @@ We remind villagers that a _Public Space Protection Order_ (PSPO) in relation to
 
 ---
 
-**Jay DYKES**
-_Tilton Playing Field_
+**Jay DYKES**<br/>
+_Tilton Playing Field_<br/>
 18/02/23

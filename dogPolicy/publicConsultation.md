@@ -35,6 +35,6 @@ It is clear that a decision whether to allow dogs needs to be made and effective
 
 ---
 
-**Jay DYKES**
-_Tilton Playing Field_
+**Jay DYKES**<br/>
+_Tilton Playing Field_<br/>
 18/02/23

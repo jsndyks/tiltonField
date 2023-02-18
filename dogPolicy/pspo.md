@@ -21,5 +21,5 @@ Any breach of the PSPO could result in :
 
 ---
 
-_Harborough District Council Environmental Crime Enforcement Officer_
+_Harborough District Council Environmental Crime Enforcement Officer_<br/>
 _4th November 2021_
