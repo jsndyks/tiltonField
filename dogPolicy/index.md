@@ -16,7 +16,7 @@ Please read these through to inform your thinking as we discuss the Parish Counc
 
 It's also worth considering the [Terms of Reference](tor.md) under which the _Playing Field Committee_ operates - the most important of these are probably the _Aims_:
 
-<div style="font-size:85%; color:#666; margin-left:2em">
+<div style="font-size:85%; color:#666; margin-left:2em" markdown=1>
 
 The _Tilton Playing Field Committee_ **aims** to generate funds, organise activities and advise the Parish Council on the management and development of the Playing Field to:
 
