@@ -6,7 +6,7 @@ Please read these through to inform your thinking as we discuss the Parish Counc
 
 1. A reminder of the [Community Vision Statements](communityVision.md) that were agreed following the community consultation that occurred in 2015, that we use to maintain and develop the _Playing Field_.
 
-2. results of the [Public Consultation](publicConsultation.md) undertaken in 2015, in which the village expressed it views on whether or not dogs should be allowed to exercise on the field. These were split 50:50.
+2. results of the [Public Consultation](publicConsultation.md) undertaken in 2014, in which the village expressed it views on whether or not dogs should be allowed to exercise on the field. These were split 50:50.
 
 3. The proposed [Proposed Dog Policy](dogPolicy.md) - this is what the _Parish Council_ will be voting on in May 2023 in light of inspections of the Playing field in the preceding months.
 
