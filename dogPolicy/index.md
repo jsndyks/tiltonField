@@ -2,7 +2,7 @@
 
 A series of documents relating to _Dog Policy_ on _Tilton Playing Field_ .
 
-Please read these through to inform your thinking as we discuss the Parish Council's policy on dogs on the field.
+Please read these through to inform your thinking as we discuss the Parish Council's policy as regards the exercising of dogs on the field.
 
 1. A reminder of the [Community Vision Statements](communityVision.md) that were agreed following the community consultation that occurred in 2015, that we use to maintain and develop the _Playing Field_.
 
@@ -16,7 +16,7 @@ Please read these through to inform your thinking as we discuss the Parish Counc
 
 It's also worth considering the [Terms of Reference](tor.md) under which the _Playing Field Committee_ operates - the most important of these are probably the _Aims_:
 
-<div style="font-size:85%; color:#666; margin-left:2em" markdown=1>
+<div style="font-size:85%; color:#666; margin-left:2em" markdown="1">
 
 The _Tilton Playing Field Committee_ **aims** to generate funds, organise activities and advise the Parish Council on the management and development of the Playing Field to:
 
@@ -27,7 +27,8 @@ The _Tilton Playing Field Committee_ **aims** to generate funds, organise activi
 - 1.3 Encourage and support residents in organising and participating in outdoor recreational activity on the field.
 
 - 1.4 Operate in accordance with the views of residents and to further equal opportunities for all groups.
-  </div>
+
+</div>
 
 Once you have done that, then feel free to use this form through which [Views on Dog Policy](https://bit.ly/tiltonFieldDogs) can be logged for consideration by the _Parish Council_.
 
