@@ -2,10 +2,11 @@
 
 Public Documents for Tilton Playing Field.
 
-- [dog policy](dogPolicy)
+- [Terms of Reference](tor.md)
+- [Dog Policy Documents](dogPolicy)
 
 ---
 
 **Jay DYKES**<br/>
 _Tilton Playing Field_<br/>
-18/02/23
+19/02/23
