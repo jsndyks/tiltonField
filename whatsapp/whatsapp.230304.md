@@ -6,7 +6,7 @@ There was lots of discussion and some disagreement, and so the Committee agreed 
 
 - _monitor the situation_ in March and April
 - _seek views_ for consideration and consider _previous correspondence_ on the matter
-- _decide_ on the proposal at the May meeting
+- _decide_ on the proposal at the next meeting - 22nd May
 
 As chair of the Playing Field Committee I want to ensure that all can see the proposal and all can contribute to the discussion before the Parish Council decides on the matter in May.
 
@@ -15,6 +15,8 @@ So I have put together a series of short documents relating to Dog Policy on Til
 https://jsndyks.github.io/tiltonField/dogPolicy/
 
 Please read these through to inform your thinking and follow the link to let the Parish Council know your view as we assess the policy on the exercising of dogs on the field.
+
+And do come along to the meeting on 22nd May at the Village Hall - 7pm.
 
 Thanks,
 

@@ -10,7 +10,7 @@ There was lots of discussion and some disagreement, and so the Committee agreed 
 - _seek views_ for consideration at the May meeting
 - consider _previous correspondence_ on the matter
 
-As chair of the Playing Field Committee I want to ensure that all can see the proposal and all can contribute to the discussion before the Parish Council decides on the matter in May.
+As chair of the Playing Field Committee I want to ensure that all can see the proposal and all can contribute to the discussion before the Parish Council decides on the matter at the next meeting - 22nd May.
 
 So, here you will find a series of documents relating to _Dog Policy_ on _Tilton Playing Field_ and an opportunity to let the Parish Council know your views.
 
@@ -44,7 +44,7 @@ The _Tilton Playing Field Committee_ **aims** to generate funds, organise activi
 
 Once you have done that, then feel free to use this form through which [Views on Dog Policy](https://bit.ly/tiltonFieldDogs) can be logged for consideration by the _Parish Council_.
 
-The _Playing Field Committee_ meeting in May is held in public, and anyone in the village(s) can participate - and I encourage you to do so, to let your views be known.
+The _Playing Field Committee_ meeting on 22nd May is held in public, and anyone in the village(s) can participate - and I encourage you to do so, to let your views be known. We start at 7pm in the Village Hall.
 
 Dates and times will be advertised on the noticeboard, and the WhatsApp group ... or just contact <code>tiltonField@gmail.com</code>
 
