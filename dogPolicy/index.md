@@ -1,6 +1,18 @@
 ## Tilton Playing Field - Dog Policy
 
-A series of documents relating to _Dog Policy_ on _Tilton Playing Field_ .
+At its February 13th meeting, Tilton on the Hill Playing Field Committee discussed the issue of _dog excrement_, which continues to be something of a problem on the field.
+
+A _trial period_, during which **dogs would be banned from the Playing Field** was proposed.
+
+There was lots of discussion and some disagreement, and so the Committee agreed to :
+
+- _monitor the situation_ in March and April and _decide_ on the proposal at the May meeting (item 3)
+- _seek views_ for consideration at the May meeting
+- consider _previous correspondence_ on the matter
+
+As chair of the Playing Field Committee I want to ensure that all can see the proposal and all can contribute to the discussion before the Parish Council decides on the matter in May.
+
+So, here you will find a series of documents relating to _Dog Policy_ on _Tilton Playing Field_ and an opportunity to let the Parish Council know your views.
 
 Please read these through to inform your thinking as we discuss the Parish Council's policy as regards the exercising of dogs on the field.
 
@@ -32,8 +44,12 @@ The _Tilton Playing Field Committee_ **aims** to generate funds, organise activi
 
 Once you have done that, then feel free to use this form through which [Views on Dog Policy](https://bit.ly/tiltonFieldDogs) can be logged for consideration by the _Parish Council_.
 
+The _Playing Field Committee_ meeting in May is held in public, and anyone in the village(s) can participate - and I encourage you to do so, to let your views be known.
+
+Dates and times will be advertised on the noticeboard, and the WhatsApp group ... or just contact <code>tiltonField@gmail.com</code>
+
 ---
 
 **Jay DYKES**<br/>
 _Tilton Playing Field_<br/>
-18/02/23
+04/03/23
