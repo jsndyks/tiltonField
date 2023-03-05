@@ -59,7 +59,7 @@ Please let's remember that we have committed to working together to maintain wha
 I would ask all to present their views with strength, but dispassionately, and with respect.
 
 Please listen graciously to the views of others and consider all perspectives.
-This will help us move forwards as we tackle a thorny and challenging issue in light of all of your views.
+This will help us move forwards as we tackle a thorny and challenging issue in light of _all of your views_.
 
 ---
 
