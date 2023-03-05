@@ -54,7 +54,7 @@ Village volunteers have put in hundreds of hours and raised many thousands of po
 
 Dog exercising is a contentious issue with strong feelings on each side.
 
-Please let's remember that we have committed to working together to maintain and develop the field for the good of the village and so we need to see the good in a village decision, whatever is decided.
+Please let's remember that we have committed to working together to maintain what we have achieved and develop the field for the good of the village, and so we all need to see the good in a village discussion and decision, whatever is decided.
 
 I would ask all to present their views with strength, but dispassionately, and with respect.
 
