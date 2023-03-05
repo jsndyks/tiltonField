@@ -48,7 +48,9 @@ The _Playing Field Committee_ meeting on **22nd May** is held in public, and any
 
 ---
 
-Finally, village volunteers have put in hundreds of hours and raised many thousands of pounds to give Tilton a great permanent secure facility for healthy outdoor recreation.
+Finally, _a call for calm_.
+
+Village volunteers have put in hundreds of hours and raised many thousands of pounds to give Tilton a great permanent secure facility for healthy outdoor recreation.
 
 Dog exercising is a contentious issue with strong feelings on each side.
 
