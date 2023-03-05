@@ -51,8 +51,13 @@ The _Playing Field Committee_ meeting on **22nd May** is held in public, and any
 Finally, village volunteers have put in hundreds of hours and raised many thousands of pounds to give Tilton a great permanent secure facility for healthy outdoor recreation.
 
 Dog exercising is a contentious issue with strong feelings on each side.
+
 Please let's remember that we have committed to working together to maintain and develop the field for the good of the village and so we need to see the good in a village decision, whatever is decided.
-I would ask all to present their views with strength, but dispassionately, and with respect. Please listen graciously to the views of others and consider all perspectives. This will help us move forwards as we tackle a thorny and challenging issue.
+
+I would ask all to present their views with strength, but dispassionately, and with respect.
+
+Please listen graciously to the views of others and consider all perspectives.
+This will help us move forwards as we tackle a thorny and challenging issue.
 
 ---
 
