@@ -44,12 +44,19 @@ The _Tilton Playing Field Committee_ **aims** to generate funds, organise activi
 
 Once you have done that, then feel free to use this form through which [Views on Dog Policy](https://bit.ly/tiltonFieldDogs) can be logged for consideration by the _Parish Council_.
 
-The _Playing Field Committee_ meeting on 22nd May is held in public, and anyone in the village(s) can participate - and I encourage you to do so, to let your views be known. We start at 7pm in the Village Hall.
+The _Playing Field Committee_ meeting on **22nd May** is held in public, and anyone in the village(s) can participate - and I encourage you to do so, to let your views be known.<br/>We start at **7pm** in the **Village Hall**.
 
-Dates and times will be advertised on the noticeboard, and the WhatsApp group ... or just contact <code>tiltonField@gmail.com</code>
+---
+
+Finally, village volunteers have put in hundreds of hours and raised many thousands of pounds to give Tilton a great permanent secure facility for healthy outdoor recreation.
+
+Dog exercising is a contentious issue with strong feelings on each side.
+Please let's remember that we have committed to working together to maintain and develop the field for the good of the village and so we need to see the good in a village decision, whatever is decided.
+I would ask all to present their views with strength, but dispassionately, and with respect. Please listen graciously to the views of others and consider all perspectives. This will help us move forwards as we tackle a thorny and challenging issue.
 
 ---
 
 **Jay DYKES**<br/>
 _Tilton Playing Field_<br/>
-04/03/23
+<code>tiltonField@gmail.com</code><br/>
+05/03/23
