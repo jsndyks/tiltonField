@@ -2,7 +2,7 @@
 
 Public Documents for Tilton Playing Field.
 
-- [Terms of Reference](tor.md)
+- [Terms of Reference](tor)
 - [Dog Policy Documents](dogPolicy)
 
 ---
