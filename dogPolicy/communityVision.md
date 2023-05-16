@@ -33,33 +33,33 @@ The most important in the context of the dog ban issue is:
 
 <span class="qGrn">
 
-> “<span class="qGrn">_The Tilton Playing Field will reflect the **rural** aspect of Tilton & Halstead and blend with the character of the surrounding countryside. Kept **clean** and **green**, the site will include a mown and maintained **grass** surface and carefully **landscaped** features surrounded by **trees** and **wild** borders. Any equipment or facilities will be sympathetic to the intrinsic character of the site and where possible be constructed of **natural** materials._</span>”
+> “<span class="qGrn"> _The Tilton Playing Field will reflect the **rural** aspect of Tilton & Halstead and blend with the character of the surrounding countryside. Kept **clean** and **green**, the site will include a mown and maintained **grass** surface and carefully **landscaped** features surrounded by **trees** and **wild** borders. Any equipment or facilities will be sympathetic to the intrinsic character of the site and where possible be constructed of **natural** materials._ </span>”
 
-<!--/span-->
+</span>
 
 #### 9.2 Feel of Site
 
 <span class="qBlu">
 
-> “<span class="qBlu">_The Tilton Playing Field will be a **friendly** and **family** focussed facility where all users feel **safe** and **welcome**. Embracing the **rural** feel of Tilton & Halstead the site will provide an **open**, **natural**, and **relaxing** space where people from all sections of the **community** can come together to enjoy socialising and shared experiences._</span>”
+> “<span class="qBlu"> _The Tilton Playing Field will be a **friendly** and **family** focussed facility where all users feel **safe** and **welcome**. Embracing the **rural** feel of Tilton & Halstead the site will provide an **open**, **natural**, and **relaxing** space where people from all sections of the **community** can come together to enjoy socialising and shared experiences._ </span>”
 
-<!--/span-->
+</span>
 
 #### 9.3 Use of Site
 
 <span class="qPrp">
 
-> “_<span class="qPrp">The Tilton Playing Field will be **open** and **free** to use by all sections of the **community**. Restrictions and rules will only be applied to ensure the site can be enjoyed **safely** and **fairly** by all. The site will provide for and encourage **spontaneous** individual and community activities including **play**, **exercise**, and **sport**, as well as providing space to **relax** and **socialise**._</span>”
+> “<span class="qPrp"> _The Tilton Playing Field will be **open** and **free** to use by all sections of the **community**. Restrictions and rules will only be applied to ensure the site can be enjoyed **safely** and **fairly** by all. The site will provide for and encourage **spontaneous** individual and community activities including **play**, **exercise**, and **sport**, as well as providing space to **relax** and **socialise**._ </span>”
 
-<!--/span-->
+</span>
 
 #### 9.4 Management of Site
 
 <span class="qRed">
 
-> “_<span class="qRed">Made up of **local volunteers**, the Tilton & Halstead Playing Field Group will oversee the management and maintenance of the site. The group will operate in an **open** and **transparent** manner, maintain strong **communication** links, and will encourage **membership** from all sections of the community. The whole **community** will **share** responsibility for the **wellbeing** and **upkeep** of the site, and will **work together** to maintain and develop it for future generations._</span>”
+> “<span class="qRed"> _Made up of **local volunteers**, the Tilton & Halstead Playing Field Group will oversee the management and maintenance of the site. The group will operate in an **open** and **transparent** manner, maintain strong **communication** links, and will encourage **membership** from all sections of the community. The whole **community** will **share** responsibility for the **wellbeing** and **upkeep** of the site, and will **work together** to maintain and develop it for future generations._ </span>”
 
-<!--/span-->
+</span>
 
 ---
 
