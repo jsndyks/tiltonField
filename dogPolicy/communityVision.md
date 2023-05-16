@@ -31,11 +31,11 @@ The most important in the context of the dog ban issue is:
 
 #### 9.1 Appearance of Site
 
-<span class="qGrn">
+<p class="qGrn">
 
 > “<span class="qGrn"> _The Tilton Playing Field will reflect the **rural** aspect of Tilton & Halstead and blend with the character of the surrounding countryside. Kept **clean** and **green**, the site will include a mown and maintained **grass** surface and carefully **landscaped** features surrounded by **trees** and **wild** borders. Any equipment or facilities will be sympathetic to the intrinsic character of the site and where possible be constructed of **natural** materials._ </span>”
 
-</span>
+</p>
 
 #### 9.2 Feel of Site
 
