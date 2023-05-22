@@ -48,6 +48,11 @@ The _Playing Field Committee_ meeting on **22nd May** is held in public, and any
 
 ---
 
+We have acquired a [Collection of Views](views.md) from villagers, which have been anonymized.<br/>
+Do consult these to inform your perspective.
+
+---
+
 Finally, _a call for calm_.
 
 Village volunteers have put in hundreds of hours and raised many thousands of pounds to give Tilton a great permanent secure facility for healthy outdoor recreation.
@@ -66,4 +71,5 @@ This will help us move forwards as we tackle a thorny and challenging issue in l
 **Jay DYKES**<br/>
 _Tilton Playing Field_<br/>
 <code>tiltonField@gmail.com</code><br/>
-05/03/23
+05/03/23<br/>
+22/05/23
