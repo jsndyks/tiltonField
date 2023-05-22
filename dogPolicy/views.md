@@ -77,7 +77,7 @@ _Ten people were in favour of retaining the current shared use policy ..._
 
 <div class="view"> I can see both sides of this proposal having a child and more recently a dog. We are responsible dog owners and always pick up our dogs mess. If we didn't have a dog then I would probably be voting for a ban but we do have a dog and she is always with us so if the ban occurs then we would more than likely not use the playing field unfortunately.
 
-We moved to Tilton just over a year ago and the discovery of the playing field was an amazing bonus - it's great fun for our ten year old boy and his friends with the added benefit of a safe space for our small dog to have some time off the lead. It's such a shame that some people are irresponsible dog owners. </div>
+We moved to Tilton just over a year ago and the discovery of the playing field was an amazing bonus - it's great fun for our _[redacted]_ year old boy and his friends with the added benefit of a safe space for our small dog to have some time off the lead. It's such a shame that some people are irresponsible dog owners. </div>
 
 #### Continue - View #3 :
 
@@ -98,9 +98,9 @@ Yes it is an emotive part of the discussion, no one wants any health issue to ar
 
 #### Continue - View #6 :
 
-<div class="view"> As a relatively “new” dog owner, I have gained a better perspective on this issue more recently. As we live next to the field & my daughter has used the field over many years, I appreciate the health risk, especially to kids, so that the field remains safe. We now mainly use the field for the dog to have a good run around. Since we’re close to the field, I’ve been able to monitor for dog poo most days over the last couple of months & haven’t found any.
+<div class="view"> As a relatively “new” dog owner, I have gained a better perspective on this issue more recently. As we live near to the field & my daughter has used the field over many years, I appreciate the health risk, especially to kids, so that the field remains safe. We now mainly use the field for the dog to have a good run around. Since we’re close to the field, I’ve been able to monitor for dog poo most days over the last couple of months & haven’t found any.
 
-I certainly wouldn’t claim there haven’t been any, but would appreciate some context on the statement in the dog policy “…prevalence of dog faeces..”.
+I certainly wouldn’t claim there haven’t been any, but would appreciate some context on the statement in the dog policy “... prevalence of dog faeces ...”.
 
 - Is this one or two dog poos in the 2 months monitoring, or the same one found twice?
 - Or an issue every day / every week?
@@ -108,7 +108,8 @@ I certainly wouldn’t claim there haven’t been any, but would appreciate some
 
 I think these facts would assist in assessing the level of risk - is the field currently deemed “unsafe” & if so, based on which facts & guidance?
 
-If we are take a zero tolerance approach to this risk & ban dogs at all times, in the interests of fairness, will we deal with other risks & nuisance similarly? E.g. glass left on the field, noise levels late in the evening, especially during summer?
+If we are take a zero tolerance approach to this risk & ban dogs at all times, in the interests of fairness, will we deal with other risks & nuisance similarly?
+E.g. glass left on the field, noise levels late in the evening, especially during summer?
 
 As a related issue but one raised elsewhere in the supporting documentation, I’ve found surprisingly limited options for my dog to run around off lead around Tilton. Trafficked lanes are a no go, a lot of footpaths don’t have dog friendly styles & we can’t get through. The dog has has a couple of belts from electric fences which are commonplace and livestock in many fields where footpaths cross is very limiting. The playing field has therefore been a great option for us & would be grateful to receive info on other similar options within walking distance.
 
@@ -116,7 +117,7 @@ I’m not clear how we ended up with current time restrictions (i.e. not after 2
 
 #### Continue - View #7 :
 
-<div class="view"> We would be really disappointed if the decision is to ban dogs on the playing field completely. Living immediately next to the field we do make use of it regularly for exercising our dog in the absence of many other off lead options.
+<div class="view"> We would be really disappointed if the decision is to ban dogs on the playing field completely. Living near to the field we do make use of it regularly for exercising our dog in the absence of many other off lead options.
 As parents of a young child we equally use the trim trail and equipment and fully understand the health issues raised.
 
 We will obviously conform to whatever is put in place and would presume and expect that any decisions made will be based on ongoing gathered evidence and facts that this has become a health issue rather than just opinion.
@@ -164,14 +165,15 @@ Here are some valid points to think about from _The Dog Trust_
 
 As mentioned about exercising your dog on many quiet lanes around the area that is just not the best option due to cars speeding and not being safe Most fields in the area also have livestock so you can't offer off lead exercise for your dog.
 
-I also have on a few occasions picked up poo that didn't belong to me as a responsible dog owner,if you ban us off the playing field....who would then pick up the rogue dog poo if there are no dog walkers?
+I also have on a few occasions picked up poo that didn't belong to me as a responsible dog owner,if you ban us off the playing field - who would then pick up the rogue dog poo if there are no dog walkers?
 
  </div>
 
 #### Allow - View #2 :
 
-<div class="view"> I have noticed that the majority of the users of the field have a dog with them. In the morning while standing looking out our rear window, as our house backs onto the field. the people using the field in the morning, which is surprisingly a high number are all local dog walkers and are always seen walking away with poo bags in hand.
+<div class="view"> I have noticed that the majority of the users of the field have a dog with them. In the morning while standing looking out our rear window, as our house backs onto the field. The people using the field in the morning, which is surprisingly a high number are all local dog walkers and are always seen walking away with poo bags in hand.
 If you ban dogs you will ban the majority of the users.
+
 My children have prob used it over the last few years as much as any other child has! and not once have they had an issue with dog poo any more then fox or cat poo.
 I think that some, prob not all of the dog poo found on the field is from people who don't even live in the village, using the church, pub, or walking routes and exercising their dogs, will they know or care about a dog ban. </div>
 
@@ -246,15 +248,15 @@ This is the ONLY secure space in the village for dogs. It’s unfair to take thi
 
 #### Allow - View #11 :
 
-<div class="view"> Unfortunately It only takes one or two irresponsible dog owners to spoil it for the majority. If these people or person don’t play by the rules over picking up after their dogs do you honestly think they will take notice of a ban on the field, they will probably laugh and carry on regardless!!
+<div class="view"> Unfortunately it only takes one or two irresponsible dog owners to spoil it for the majority. If these people or person don’t play by the rules over picking up after their dogs do you honestly think they will take notice of a ban on the field, they will probably laugh and carry on regardless!!
 
-I put it too you that they probably don’t even know they are causing this much of an issue to others because they aren’t on the village WhatsApps group and might not integrate within . Could I suggest a leaflet drop around the village pointing out the firm rules of the field, of being a responsible dog owner and the fine that not picking up incurs could perhaps make this minority understand it’s not acceptable?
+I put it too you that they probably don’t even know they are causing this much of an issue to others because they aren’t on the village WhatsApps group and might not integrate within. Could I suggest a leaflet drop around the village pointing out the firm rules of the field, of being a responsible dog owner and the fine that not picking up incurs could perhaps make this minority understand it’s not acceptable?
 
 I feel a blanket ban on the responsible owners of the village is an unfair action to take because from observation dog exercising is possibly the most common use of this field !</div>
 
 #### Allow - View #12 :
 
-<div class="view"> I feel it would be a shame to ban dogs all together. I think we need to consider maybe having a poo bin for dogs up there and like other villages do .
+<div class="view"> I feel it would be a shame to ban dogs all together. I think we need to consider maybe having a poo bin for dogs up there and like other villages do.
 
 And it is such a shame that a few irresponsible dog owners are going to be responsible for dogs not being allowed on the Playing Fields. Living so close to the Playing Field . I would be concerned that some parents will not bring their children up to the playing fields if they cannot exercise their dogs at the same time. As we all know the Playing Field is not used as much as it should be.
 
