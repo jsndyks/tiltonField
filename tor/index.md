@@ -4,18 +4,6 @@
 
 A committee of the Parish Council to fundraise for and advise upon the management and development of the _Queen Elizabeth II Field_, _Tilton on the Hill Playing Field Land_ on behalf of residents of Tilton on the Hill and Halstead as follows:
 
-#### AIMS
-
-The _Tilton Playing Field Committee_ aims to generate funds, organise activities and advise the Parish Council on the management and development of the Playing Field to:
-
-- 1.1 Provide a facility for healthy outdoor recreation by maintaining, managing and developing the Playing Field Land for games, sporting activities and other organised and serendipitous outdoor pursuits.
-
-- 1.2 Make information about facilities and activities available to residents.
-
-- 1.3 Encourage and support residents in organising and participating in outdoor recreational activity on the field.
-
-- 1.4 Operate in accordance with the views of residents and to further equal opportunities for all groups.
-
 #### Compliance
 
 - 2.1 The Tilton Playing Field Committee finances shall be managed in accordance with the Tilton on the Hill Parish Council Financial Regulations together with any subsequent changes thereto.
