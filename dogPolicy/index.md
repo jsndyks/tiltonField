@@ -48,8 +48,10 @@ The _Playing Field Committee_ meeting on **22nd May** is held in public, and any
 
 ---
 
-We have acquired a [Collection of Views](views.md) from villagers, which have been anonymized.<br/>
-Do consult these to inform your perspective.
+We have now collected a series of [Views from the Village](views.md) using this approach.
+
+These have been anonymized and collated for consideration.<br/>
+Do consult these views to inform your perspective.
 
 ---
 

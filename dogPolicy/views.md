@@ -4,6 +4,8 @@
     .view {margin-left:4em; font-size:95%; color:#666}
     </style>
 
+### Views from the Village
+
 We received _26 individual responses_ to our request for views on the proposed policy to ban dogs on Tilton Playing Field.
 
 The request was made through the Parish Council WhatsApp group and via noticed at the entrances to the Playing Field.
